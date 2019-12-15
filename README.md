@@ -1,1 +1,0 @@
-# gyrev1103.github.io
